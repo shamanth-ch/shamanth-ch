@@ -4,8 +4,8 @@ Iam a passionate engineer🙂 developing and learning new skill and improving my
 
 Iam currently pursuing my Btech, intrested in cloud computing and big data here is my aws educate profile 
 <a href="https://www.awseducate.com/student/s/">MY profile</a><br/>
-funfact😇 ::>> initially i felt Github was only a vcs but I am learning alot from github and i regret it was late for me to start but i will cover up.<br/>
-<h1> Still Learning and building</h1>
+consistent with my skills<br/>
+
 <h6>Bye </h6>
 
 
